@@ -1,2 +1,2 @@
 # onepiece
-losre about one piece
+lore about one piece
